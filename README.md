@@ -4,4 +4,4 @@ If you are a student from CQUPT, pls well kown that what you done is illegal, if
 
 For those who are not a student or not a student form CQUPT, pls konw that this script is useless for your guys, but you can also learn from it if you wish to.
 
-Anyway, i'll be appreaciated that you can understand what i say, and make this script of its best use.
+Anyway, i'll be appreciated that you can understand what i say, and make this script of its best use.
